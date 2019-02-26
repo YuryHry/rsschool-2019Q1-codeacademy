@@ -1,1 +1,1 @@
-# rsschool-2019Q1-codeacademy
+Yury Hryharenka https://www.codecademy.com/users/YuryHry/achievements
